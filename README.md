@@ -6,6 +6,6 @@
 Here are some ideas to get you started:
 
 - 🔭 I AM CURRENTLY STUDYING JAVA COURSE ENTRA 21 BLUMENAU SC
-- 
+- 🍀
 
 
